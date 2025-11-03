@@ -42,8 +42,7 @@
 
 ## 📫 Let's Connect
 📧 [abhishekkeshri925@gmail.com](mailto:abhishekkeshri925@gmail.com)  
-🔗 [LinkedIn](https://www.linkedin.com/in/abhishek-keshri-abi940)  
-🌍 [GitHub](https://github.com/abhishekkeshri-abi940)  
+🔗 [LinkedIn](https://www.linkedin.com/in/abhishek-keshri-abi940)    
 
 ---
 
